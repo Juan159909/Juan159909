@@ -5,7 +5,7 @@
 
 :eyeglasses: Intake specialyst in Golden Pear
 
-Passionated for the art & computing!
+Passionate for the art & computing!
 
 
 ### Vias de contacto
